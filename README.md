@@ -42,7 +42,7 @@ TIPS：`保存资源后才是完整版。`[免费领取 1T 教程](https://kdocs
 
 NES|FC|小霸王游戏[2000 多个含模拟器]：[https://pan.quark.cn/s/cdd3785b6ef4](https://pan.quark.cn/s/cdd3785b6ef4)
 
-## [任天堂 switch 游戏合集 22T 游戏更新到 2025 年 9 月份[强烈推荐]](https://pan.quark.cn/s/6d01319b45c1)
+## [任天堂 switch 游戏合集 22T 游戏[强烈推荐]](https://pan.quark.cn/s/6d01319b45c1)
 
 switch 最新版 yuzu 模拟器：[https://pan.quark.cn/s/ac95b016148a](https://pan.quark.cn/s/ac95b016148a)
 
