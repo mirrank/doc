@@ -7,9 +7,6 @@
 #### 全网最全主机/模拟器游戏资源
 # 软件/游戏/模拟器游戏文件下载分享
 
-- 来源（实时更新）：https://www.kdocs.cn/l/cb8EZlAVGjo5
-- 记录一下 o(_￣ ▽ ￣_)o，万一哪天来源没有了
-
 ![placeholder](https://picx.zhimg.com/80/v2-06b51e02bca912aece18a907acab6cc9_1440w.png?source=ccfced1a)
 
 `本人亲测(手机/PC)均可玩 ↑↑↑`
